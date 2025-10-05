@@ -4,5 +4,6 @@ Im ch3rry!! (Not my irl name ofc) I'm an artist and I love drawing, [MULTIFANDOM
 -
 -
 ⛔ = offtab . (i always being offtab but i sometimes get online again)
+
 🌙 = making skins .
    ( i ❤️ making troll/joke skins, if u blocked me while im just trolling, idc. )
